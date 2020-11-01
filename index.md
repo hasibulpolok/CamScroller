@@ -8,8 +8,8 @@ Connect Me On [Facebook](https://facebook.com/hasibulpolokbd)
 
 Thanks for visit my gig. If you like my projects. Follow me so that I can publish more interesting projects.
 
-``` Thank You <br/>
-   **Hasibul Polok**
+   **Thank You**
+  **Hasibul Polok**
 
 
 
